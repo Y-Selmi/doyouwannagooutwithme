@@ -1,3 +1,3 @@
-✨[doyouwannagooutwithme.com](http://doyouwannagooutwithme.com) 
+✨[doyouwannawatchamoviewithme.com](http://doyouwannawatchamoviewithme.com) 
 
-A website to invite your lover for a date 🥰
+A website to invite her for a movie date 🥰
